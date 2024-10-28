@@ -1,16 +1,16 @@
-## Hi there 👋
+![](https://komarev.com/ghpvc/?username=fourinteger&color=317ccf)
+# 
 
-<!--
-**wrioviIIete/wrioviIIete** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+m name is four
 
-Here are some ideas to get you started:
+any pronouns
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+i am quite literally four bfb irl
+
+NO c+h
+
+<a href="https://fourinteger.atabook.org">ata</a> - <a href="https://www.patreon.com/c/fourinteger/about">patreon</a>
+#
+
+pt flagged me becasue i was too cool (autoclicker) last screenshotted playtime for anyone wondering idk
+![](https://cdn.discordapp.com/attachments/907859146769063946/1300033886536863795/image.png?ex=671f5e68&is=671e0ce8&hm=7ff09772ed946b6adb0bee58387e67b31ee734502acdf8578a04ed2793967216&)
